@@ -1,0 +1,2 @@
+# AltCoin
+Need a Team
